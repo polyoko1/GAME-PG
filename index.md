@@ -1,37 +1,9 @@
-## Welcome to GitHub Pages
+PG SLOT สล็อตออนไลน์ ฝาก ถอน อัตโนมัติ ตลอด 24 ชั่วโมง
+PG SLOT สล็อตออนไลน์ เปิดให้บริการ สมัคร ฝาก ถอน เครดิต ด้วยระบบอัตโนมัติ พบกับประสบการณ์ใหม่ ไม่ต้องทำรายการผ่านพนักงาน ทำรายการ ด้วยตนเอง ตลอด 24 ชั่วโมง รวดเร็ว ปลอดภัย 100% ด้วยระบบออโต้ ที่ดีที่สุด สมัครสมาชิกวันนี้รับโบนัสทันที 50%
 
-You can use the [editor on GitHub](https://github.com/polyoko1/GAME-PG/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
+PG SLOT AUTO อัตโนมัติ ที่ดีที่สุด
+บริการฝาก ถอน เครดิตเล่นสล็อต ด้วยระบบ AUTO ที่ดีที่สุด เสถียรที่สุดในตอนนี้ บริการที่เราคัดสรร และพัฒนาเพื่อสมาชิกคนพิเศษของเรา อำนวยความสะดวกสบาย รวดเร็ว ในการฝาก ถอน หรือ เติมเครดิต สำหรับเข้าเล่นสล็อตออนไลน์กับเรา ได้ตลอดเวลา ไม่มีวันหยุด
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
-
-### Markdown
-
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
-
-```markdown
-Syntax highlighted code block
-
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/polyoko1/GAME-PG/settings). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
+สมัครสมาชิก
+PG SLOT เกมสล็อตออนไลน์ มาแรง อันดับ 1
+PG SLOT เกมสล็อตออนไลน์ รูปแบบใหม่ ที่กำลังเป็นที่นิยม และมาแรง อันดับ 1 ในขณะนี้ ด้วยการเล่นเกมสล็อตออนไลน์ ที่เล่นง่าย และมีเกมสล็อตให้เล่นอย่างหลากหลาย และมีการอัพเดตเกมใหม่ๆ อย่างต่อเนื่อง เพื่อตอบสนองความต้องการของผู้เล่นได้มากที่สุด โดดเด่นในเรื่องของเกมที่มีเนื้อเรื่องยอดเยี่ยม เอฟเฟกต์เสียงที่น่าตื่นเต้น และแอนิเมชั่นอันงดงามที่สร้างความประทับใจให้กับผู้เล่นได้อย่างไม่สิ้นสุด ทั้งหมดนี้คือความพิเศษของ PGSLOT ที่ทำให้ได้รับความนิยมอย่างต่อเนื่อง ไม่เพียงเท่านั้น PGSLOT ยังเป็นเกมสล็อตออนไลน์ ที่สร้างรายได้ให้กับผู้เล่นได้อีกด้วย
